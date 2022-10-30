@@ -1,6 +1,8 @@
 # Halloween: disfraces, historia, mitos y mucho más
 ## Recorremos la historia de la noche de Halloween y las razones de su popularidad actual.
 
+![aquellare](/aquelarre.jpg)
+
 A fecha de hoy, la mezcla de fiestas, sustos, bromas y caramelos dista mucho de los antiguos orígenes de Halloween. Durante siglos, esta misteriosa noche ha experimentado muchos cambios derivados de la mezcla de las tradiciones y las culturas de los países occidentales, que hacen de la Noche de las Brujas una celebración muy especial llena de tradiciones que han ido transformándose fruto de su historia. Hacemos un recorrido a lo largo de los años para buscar los orígenes de esta espeluznante festividad:
 
 ### Origen pagano y trajes celtas
